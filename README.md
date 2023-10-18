@@ -1,0 +1,5 @@
+- Waddup, I’m @MariCorpey, better known as $HEF or GYACX
+- In school for Cybersecurity, business owner, musician and tinkerer by heart
+- Currently learning to make my own USB/MIDI controllers
+- I’m looking to collaborate on ^^^ if anyone has any tips, I'd be mighty appreciative.
+- hit me at grandadmiral@desczodgery.space
